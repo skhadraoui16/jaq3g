@@ -1,1 +1,3 @@
 # jaq3g
+
+MY FILES FOR WEAVING ON THE JAQ-3G ;) 
